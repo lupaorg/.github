@@ -1,3 +1,0 @@
-### Lupa
-
-Broadening horizons
